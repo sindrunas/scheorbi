@@ -1,2 +1,2 @@
 # scheorbi
-Super CHarming Electronic Object for Royal Bloated Idiots
+Super CHarming Electronic Object for Royal Beloved Incubuses
